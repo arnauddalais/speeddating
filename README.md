@@ -5,7 +5,7 @@ Speed Dating
     Contact: Arnaud DALAIS
     E-mail  : arnaud.dalais@free.fr
 
-    Video link : 👉  👈
+    Video link : 👉 https://share.vidyard.com/watch/kjCyGnZhvDLhc2F8BUACHV? 👈
 
 Subject
 
